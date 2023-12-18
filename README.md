@@ -1,0 +1,2 @@
+# Ahmedanoy
+Allahu akbar 
